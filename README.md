@@ -1,1 +1,1 @@
-# oza
+# discord azdo
